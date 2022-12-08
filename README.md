@@ -1,11 +1,11 @@
-- ima back and wierder than ever
 - i just fork cool things and am into web dev
-- she/her i think idk
+- she/her
 - pico funny
 - pico funny
 - pico funny
 - 📫 How to reach me ...
-- disocrd i will put it up here when i remember it
+- discord 
+- +*Snowy*+#0001
 - i have memory problems, i promis im not forgeting on purpos.
 
 <!---
