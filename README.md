@@ -5,7 +5,7 @@
 - pico funny
 - 📫 How to reach me ...
 - discord 
-- +*Snowy*+#0001
+- ![Untitled](https://user-images.githubusercontent.com/74722466/206459043-2e640c4d-303b-4b4a-b2c4-cc330a58edf2.png)
 - i have memory problems, i promis im not forgeting on purpos.
 
 <!---
