@@ -4,6 +4,7 @@
 - still in school
 - I have memory problems, I promiss im not forgeting on purpose.
 - I have a Discord if You want to contact me
+
 ![Untitled](https://user-images.githubusercontent.com/74722466/206459043-2e640c4d-303b-4b4a-b2c4-cc330a58edf2.png)
 
 <!---
