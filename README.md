@@ -2,7 +2,7 @@
 - I am into web development.
 - My pronouns are She/Her.
 - still in school. 🥲
-- I Will link my discord later
+- discord iz thestormyz
 
 
 
