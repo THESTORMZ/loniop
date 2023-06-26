@@ -1,7 +1,5 @@
-- I like to port FNF game to the web. (even tho im not to good at it 😅)
-- I am into web development.
-- My pronouns are She/Her.
-- still in school. 🥲
+- im not rly active on here anymore
+- :3
 - discord iz thestormyz
 
 
